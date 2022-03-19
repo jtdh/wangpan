@@ -17,12 +17,10 @@
 | 论文，期刊，文库，学术下载，文献免费下载                     | [**库问搜索**](http://www.koovin.com/)    |
 |                     |    |
 |                     |    |
-|          [海量诱惑短视频](https://v.hallo365.top/)           |          [优质中字](https://v.hallo365.top/)          |         [最新国产大厂制片](https://v.hallo365.top/)          |
-|            [脱衣直播区](https://v.hallo365.top/)             |     [全国认证楼凤&外围](https://v.hallo365.top/)      |             [空投女友](https://v.hallo365.top/)              |
-|             [认证女神](https://v.hallo365.top/)              |       [91网友交流热论](https://v.hallo365.top/)       |             [同城交流](https://v.hallo365.top/)              |
-|             [成人动漫](https://v.hallo365.top/)              |           [AV解说](https://v.hallo365.top/)           |             [经典三级](https://v.hallo365.top/)              |
-|             [小编严选](https://v.hallo365.top/)              |           [门事件](https://v.hallo365.top/)           |             [情趣综艺](https://v.hallo365.top/)              |
-|             [软嫩萝莉](https://v.hallo365.top/)              |       [真实家庭L伦](https://v.hallo365.top/)       |  
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |          [海量诱惑短视频](https://v.hallo365.top/)           |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |            [脱衣直播区](https://v.hallo365.top/)             |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |             [软嫩萝莉](https://v.hallo365.top/)              |
+
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
@@ -32,7 +30,9 @@
 
 > 汇总网址： [`备用网址`](https://github.com/jtdh/jtdh/) https://github.com/jtdh/jtdh
 
+
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
 
 **[尽头导航_终点磁力导航github](https://jintou.gitbook.io/) 告诫你**
 
@@ -41,3 +41,39 @@
 >   - 不要伤害Ta人满足性欲 
 >   - 请务必认真识别各类广告，小心骗子/陷阱套路，以免上当， 造成损失
 >   - 再次提示，以下论坛、磁力站、App中会有各式眼花缭乱的博彩广告。请不要去尝试（小玩而已？），人性弱点和严谨细致的博彩app代码会让你上瘾并输钱。指望它发家致富只会让你落入贷款高利贷的无限深渊，它的惯性亦会引诱你走向犯罪、卖房、倾家荡产、妻离子散的悲惨结局。这绝不是危言耸听，例子比比皆是，请好自为之。
+
+
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+
+
+
+| 成人精品论坛                                                |                                                    |                                               |                                  ⭐⭐⭐⭐⭐              |
+| --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
+| AvCar成人论坛_老司机汇集地     | [最新地址①](http://bwur7438ef.xyz:6323/forum.php?x=6391471) | [最新地址②](http://dd.ma/jCcKhLYB) | 老司机交流飙车区|
+| VR高清大社区    | 夫妻交流讨论 | 伪娘交流讨论 | 老司机兴趣圈子区 |
+|      |  |  | |
+|      |  |  | |
+|      |  |  | |
+| 哔哩兔-最大的ACG资源站                | [最新地址①](http://biliacg220.xyz:8998/forum.php?x=720132) | [最新地址②](http://dd.ma/v0F94YYC) | ACG游戏 |
+| 二次元资源汇集                | 声音资源/MMD专区 | 动漫里番/图书/剧场 | 福利姬/cos |
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+
+| 福利APP推荐                                                |         所有精品                                           |           一网打尽！                                    |                ⭐⭐⭐⭐⭐                                |
+| --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |          [海量诱惑短视频](https://v.hallo365.top/)           |          [软嫩萝莉](https://v.hallo365.top/)          |         [最新国产大厂制片](https://v.hallo365.top/)          |
+| [世界AV聚合平台](https://v.hallo365.top/) |            [脱衣直播区](https://v.hallo365.top/)             |     [成熟御姐](https://v.hallo365.top/)      |             [空投女友](https://v.hallo365.top/)              |
+| [18+动漫天堂](https://v.hallo365.top/) |           [黄漫热番](https://v.hallo365.top/)    |   [优质中字](https://v.hallo365.top/)              |       [91网友交流热论](https://v.hallo365.top/)   
+|  [全国本地楼凤聚合平台](https://v.hallo365.top/)    | [洗浴按摩](https://v.hallo365.top/)| [同城约会](https://v.hallo365.top/) | [同城小姐](https://v.hallo365.top/)|
+| [91认证-楼凤兼职](https://v.hallo365.top/)| [外围模特](https://v.hallo365.top/)| [高端伴游](https://v.hallo365.top/)| [情人包养](https://v.hallo365.top/)| 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+| 正规交友平台                                                |      真诚真实交友请入                                              |                                               |                                 ⭐⭐⭐⭐⭐               |
+| --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
+|   [正规-同城无任何套路](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)   | [正规-附近真实交友](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)| [正规-交友语音聊天](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902) |[正规-交友视频聊天](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902) |
+|    [正规-国内男女交友](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)  | [正规-国际男女交友](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)| [正规交友-男生进入](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902) | [正规交友-女生进入](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)|
+| 注意下载选项👉                                                |      请选：通过第三方浏览器下载✔                                              |                                        快速直达       |        国外男女聊天，练口语请进                                        |
