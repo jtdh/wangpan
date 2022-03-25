@@ -49,14 +49,16 @@
 
 
 
-| 成人精品论坛                                                |                                                    |                                               |                                  ⭐⭐⭐⭐⭐              |
-| --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
-| AvCar成人论坛_老司机汇集地     | [最新地址①](http://bwur7438ef.xyz:6323/forum.php?x=6391471) | [最新地址②](http://dd.ma/jCcKhLYB) | 老司机交流飙车区|
-| VR高清大社区    | 夫妻交流讨论 | 伪娘交流讨论 | 老司机兴趣圈子区 |
+| AvCar成人论坛_老司机汇集地                                  |               **18+必选飙车地！**                |                        |       ⭐⭐⭐⭐⭐        |
+| ----------------------------------------------------------- | :----------------------------------------------: | :--------------------: | :----------------: |
+| [进入老司机汇集地](https://l.tell365.top/) |                老司机交流飙车区！                |   老司机兴趣圈子区！   |     推特福利姬     |
+| VR高清大社区圈                                              |             夫妻交流讨论圈（绿奴多）             |     伪娘交流讨论圈     | 老司机兴趣圈子区！ |
+| 无码/有码/中字高清                                          |               在线观看区（共三区）               | 恋物癖/SM/变装变性TS圈 |    女优百科大全    |
+| ACG动漫二次元资源交流圈！                                   | 真实家庭乱论视频图文交流地！（母子父女姐弟丈母） |        呦美萝莉        |       [进入老司机汇集地](https://l.tell365.top/)              |
 |      |  |  | |
 |      |  |  | |
 |      |  |  | |
-| 哔哩兔-最大的ACG资源站                | [最新地址①](http://biliacg220.xyz:8998/forum.php?x=720132) | [最新地址②](http://dd.ma/v0F94YYC) | ACG游戏 |
+| 哔哩兔-最大的ACG资源站                | [最新地址①](https://bili.6vs5.com) | [最新地址②](http://dd.ma/v0F94YYC) | ACG游戏 |
 | 二次元资源汇集                | 声音资源/MMD专区 | 动漫里番/图书/剧场 | 福利姬/cos |
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
@@ -74,6 +76,6 @@
 
 | 正规交友平台                                                |      真诚真实交友请入                                              |                                               |                                 ⭐⭐⭐⭐⭐               |
 | --------------------------------------------------- | :----------------------------------------------------------: | :---------------------------------------------------: | :----------------------------------------------------------: |
-|   [正规-同城无任何套路](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)   | [正规-附近真实交友](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)| [正规-交友语音聊天](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902) |[正规-交友视频聊天](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902) |
-|    [正规-国内男女交友](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)  | [正规-国际男女交友](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)| [正规交友-男生进入](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902) | [正规交友-女生进入](https://service-4ea859kc-1251928977.gz.apigw.tencentcs.com/release/APIGWWebPageDemo-162148323738373jrty13x?user=aHR0cHM6Ly9oNS5ncmFiY2hhdGFwcC5jb20vTWluZS9JbnZpdGVNYWxlLmFzcHg/Y2hhbm5lbENvZGU9QzEwMDMmSUQ9NzMzNjkwMg==-7336902)|
+|   [正规-同城无任何套路](https://wan.x93x.com)   | [正规-附近真实交友](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902)| [正规-交友语音聊天](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902) |[正规-交友视频聊天](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902) |
+|    [正规-国内男女交友](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902)  | [正规-国际男女交友](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902)| [正规交友-男生进入](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902) | [正规交友-女生进入](https://h5.grabchatapp.com/Mine/InviteMale.aspx?channelCode=C1003&ID=7336902)|
 | 注意下载选项👉                                                |      请选：通过第三方浏览器下载✔                                              |                                        快速直达       |        国外男女聊天，练口语请进                                        |
