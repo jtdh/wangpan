@@ -24,15 +24,6 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-**实时更新地址 汇总版 👇👇👇**
-
-> 汇总网址： [`发车论坛导航大全|动漫二次元ACG导航大全|磁力导航大全_bt导航_磁力站大全| 尽头导航_磁力终点导航github | 照亮狼家`](https://jintou.gitbook.io) https://jintou.gitbook.io
-
-> 汇总网址： [`备用网址`](https://github.com/jtdh/jtdh/) https://github.com/jtdh/jtdh
-
-
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-
 
 **[尽头导航_终点磁力导航github](https://jintou.gitbook.io/) 告诫你**
 
@@ -68,3 +59,15 @@
 |  [全国本地楼凤聚合平台](https://v.hallo365.top/)    | [洗浴按摩](https://v.hallo365.top/)| [同城约会](https://v.hallo365.top/) | [同城小姐](https://v.hallo365.top/)|
 | [91认证-楼凤兼职](https://v.hallo365.top/)| [外围模特](https://v.hallo365.top/)| [高端伴游](https://v.hallo365.top/)| [情人包养](https://v.hallo365.top/)| 
 
+                                       |
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+**实时更新地址 汇总版 👇👇👇**
+
+> 汇总网址： [`发车论坛导航大全|动漫二次元ACG导航大全|磁力导航大全_bt导航_磁力站大全| 尽头导航_磁力终点导航github | 照亮狼家`](https://jintou.gitbook.io) https://jintou.gitbook.io
+
+> 汇总网址： [`备用网址`](https://github.com/jtdh/jtdh/) https://github.com/jtdh/jtdh
+
+
+![image](https://user-images.githubusercontent.com/99425739/159112596-125f6626-1860-406a-9845-036caa0eb34f.png)
